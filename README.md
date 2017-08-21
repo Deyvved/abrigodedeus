@@ -1,2 +1,1 @@
-# abrigodedeus
-Escolta Teologica Abrigo de Deus
+Escola teologica abrigo de deus levando vida até você
